@@ -2,10 +2,6 @@
 <img width="396" alt="image" src="https://github.com/user-attachments/assets/33af0c0b-675a-4782-9d4e-8b94e0fd1359">
 
 
-本学期暂定安排如下图所示，如有更改会在大群中通知
-
-<img width="396" alt="image" src="https://github.com/user-attachments/assets/f384b6e1-2da5-4564-b085-9c87fa059689">
-
 
 0.【车队规章制度】（申请入队前请仔细阅读）
 
